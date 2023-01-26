@@ -25,11 +25,11 @@ https://www.123pan.com/s/HkXuVv-gV0tv
 
 Telegram频道:
 
-https://t.me/bpwz2
+https://t.me/bpapk
 
 Telegram群组:
 
-https://t.me/bpwz1
+https://t.me/bp_apk
 
 
 # 联系本人:
